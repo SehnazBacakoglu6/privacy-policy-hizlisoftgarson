@@ -1,1 +1,1 @@
-# privacy-policy-hizlisoftgarson
+# HızlıSoft Garson Gizlilik Politikası
